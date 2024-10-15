@@ -6,4 +6,6 @@ O estilo de combate maneiras de vencer o jogo sao bastantes limitadas e dependen
 
 Dragoes ancioes emigram misteriosamente o que levanta as suspeita da equipe de exploraçao , o que ocorre na descoberta do novo mundo um novo territorio nunca antes explorado . Agora a Guilda tem uma missao descobrir para onde os dragoes ancioes estao indo e porque .
 
-A melhor estrategia para avançar mais rapidamente no jogo seria usar armas de dando fisico , pois nao sofrem negaçao ao atacarem um monstro elemental , enquanto as armas elementas tendem a serem mais fracas com certos tipos de monstros
+A melhor estrategia para avançar mais rapidamente no jogo seria usar armas de dando fisico , pois nao sofrem negaçao ao atacarem um monstro elemental , enquanto as armas elementas tendem a serem mais fracas com certos tipos de monstros.
+
+!3hiweb0k(Monster_Hunter_Images/3hiweb0k.png)
